@@ -1,6 +1,6 @@
 # PMP-PMI-Study-Guide-Exam-Tips-Step2Pass-
 
-# PMP Exam Passed Successfully 🎉
+# PMP Exam Passed Successfully 
 
 Excited to share that I have successfully passed the [PMP (Project Management Professional) exam](https://www.step2pass.com/pmi/pmp.html). The journey required dedication, consistent study, and plenty of practice. **Step2Pass realistic practice** questions and study assistance helped me strengthen key concepts and approach the exam with confidence.
 
